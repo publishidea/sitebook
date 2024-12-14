@@ -6,3 +6,6 @@
 <a href="https://www.toyotabaracarrental.com/th/home">เช่ารถ</a> ทางเลือกที่คล่องตัวสำหรับการเดินทางในยุคนี้
 
 <a href="https://www.toyotabaracarrental.com/th/home">ขายที่ดิน</a> ลงประกาศขายที่ดินฟรี ไม่ต้องสมัครสมาชิก ลงประกาศง่าย ขายได้แน่
+
+<a href="https://www.sincereflowerdelivery.com/home">ร้านดอกไม้</a> มอบดอกไม้เป็นสื่อแทนความรู้สึกดี ๆ อย่างจริงใจ แด่คนพิเศษของคุณ ในทุกๆ โอกาสสำคัญ
+
